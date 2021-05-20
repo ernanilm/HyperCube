@@ -1,1 +1,0 @@
-HYPERCUBE EVO Ngen by NedalLive on Thingiverse: https://www.thingiverse.com/thing:3018572
