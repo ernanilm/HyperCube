@@ -1,1 +1,0 @@
-My HyperCube Evolution by DaHai8 on Thingiverse: https://www.thingiverse.com/thing:2847400

@@ -1,2 +1,0 @@
-# HyperCube
-Impressora
